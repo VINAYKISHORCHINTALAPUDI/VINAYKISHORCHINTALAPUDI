@@ -1,0 +1,1 @@
+My name is VINAY KISHOR CHINTALAPUDI. I am pursing B.tech in Rajiv Gandhi University of Knowledge Technologies, popularly known as IIIT Nuzvid with current CGPA of 7.8. Iam intersted in programming and datascience
